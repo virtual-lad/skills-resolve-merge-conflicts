@@ -1,3 +1,0 @@
-# Reference
-
-* october 4 😈
